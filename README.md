@@ -3,6 +3,8 @@
 
 - 🌱 Aprendendo e melhorando.
 - 📫 Contato: Capelette.rhuan@gmail.com
+- 👨‍🎓 Graduado em Direito.
+- 👨‍🎓 Cursando Análise e Desenvolvimento de Sistemas.
 
 
 <div>
